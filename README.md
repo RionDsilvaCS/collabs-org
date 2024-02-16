@@ -43,6 +43,7 @@ Meet the brilliant minds behind COLLABS: Rion Dsilva, T Puneeth Reddy, Sai Chara
 
 >GitHub [@Aniesh04](https://github.com/Aniesh04)        ·  Linkedin [@Aniesh Reddy Gundam](https://www.linkedin.com/in/aniesh-reddy-gundam-016365232/)
 
+>GitHub [@Jahnavi0504](https://github.com/Jahnavi0504)        ·  Linkedin [@CH V N S Jahnavi](https://www.linkedin.com/in/ch-v-n-s-jahnavi-51a8ab259/)
 
 ---
 © 2024 Collabs
