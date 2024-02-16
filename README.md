@@ -45,4 +45,4 @@ Meet the brilliant minds behind COLLABS: Rion Dsilva, T Puneeth Reddy, Sai Chara
 
 
 ---
-© 2023 Collabs
+© 2024 Collabs
